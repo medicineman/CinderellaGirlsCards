@@ -7,4 +7,4 @@ CinderellaGirlsCards とは
 連絡
 ----
 
-http://www5.atchs.jp/imas/ か https://twitter.com/imasbbs に
+http://www5.atchs.jp/imas/ か https://twitter.com/imasboard に
